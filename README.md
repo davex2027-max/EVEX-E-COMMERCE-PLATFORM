@@ -1,2 +1,2 @@
 # EVEX-E-COMMERCE-PLATFORM
-A marketing platform for all publicite their work 
+A marketing and connection world for people to marketise, advertise and publicite their work or business.  
